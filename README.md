@@ -1,0 +1,1 @@
+# Modelo-Te-rico-de-Verifica-o-de-For-a-de-Senhas
